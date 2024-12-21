@@ -9,10 +9,14 @@
 - entertainers have participated in this affair largely to maintain accountability
 - This is threatening to liberals because Neo Liberalism lacks accountability
 
+<br />
+
 - legal options were not pursuable due to democrats being in charge of federal and state offices
 - now legal options for accountability are available w/ incoming Trump admin
 - entertainers have an opportunity here to make bridges with their MAGA fans without hurting existing relations with liberal fans - crimes were committed, not political opinions, wasn’t all democrats / media types
 - Trump was elected in 2016 because this country trusts the voice of an entertainer to hold the forces of globalism and Neo liberalism accountable - opinions on whether he has or not is not relevant to this opportunity
+
+<br />
 
 - New Neo Liberalism: Make America Accountable Again
  - restate Murphy’s definition of neoliberalism
@@ -21,6 +25,8 @@
 - unaccountable leadership is what makes Neo liberalism bad, markets are predators for your fans in so much that leadership can be predators in non economic ways - weird criminal shit begets global economic criminal shit
   - stop predators in leadership positions by becoming the new face of American accountability, this will allow the avenue to hold markets accountable for where they are bad for your fans
 
+<br />
+
 - Again, Trump was elected in 2016 because Americans see leadership in entertainers that doesn’t exist within politics
 - Entertainers can fill the power vacuum that exists in this country’s lack of accountability starting with the Democratic Party to which you already have heavy influence - make that influence control, make that influence power, grow that power
 - Don’t just wag the finger at the other side, lead by example
@@ -28,6 +34,8 @@
   - this was essentially the founding father’s whole thing vs. King George
   - the entertainment industry can be the leaders of America by taking this opportunity to hold power accountable to the crimes you’ve witnessed
 - Fulfill the spirit of Hollywood, of pop music, hip hop, rock n roll, of multi generational youth culture as a movement to hold the powerful accountable with the truth; do that by taking this once in a millennia opportunity these democrats have given to the leaders of movies, music, and media with the crimes they’ve allowed you to witness
+
+<br />
   
 - This is what threatens the establishment liberals which sought criminal behaviors against me because of the whole Matrix thing - I kept making them look foolish for abusing the law and the media to pursue me, but I only did that because it’s the closest I can get as one person to holding them accountable for fascist behavior - they fear accountabliity, thus why the escalated knowing I had a Hollywood audience due to the Matrix thing
 - what you do with that power after it’s taken by holding the democrats accountable is up to you

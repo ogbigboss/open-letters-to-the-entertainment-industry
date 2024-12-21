@@ -11,7 +11,7 @@
 
 <br />
 
-- legal options were not pursuable due to democrats being in charge of federal and state offices
+- legal options to stop Democrat criminal medical malpractice scheme were not pursuable due to democrats being in charge of federal and state offices
 - now legal options for accountability are available w/ incoming Trump admin
 - entertainers have an opportunity here to make bridges with their MAGA fans without hurting existing relations with liberal fans - crimes were committed, not political opinions, wasn’t all democrats / media types
 - Trump was elected in 2016 because this country trusts the voice of an entertainer to hold the forces of globalism and Neo liberalism accountable - opinions on whether he has or not is not relevant to this opportunity

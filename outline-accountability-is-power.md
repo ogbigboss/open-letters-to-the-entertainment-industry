@@ -42,5 +42,5 @@
 - Midterms in 2 years, another presidential election in 4 - getting this done sooner clears an avenue to a brighter, less criminal future for the Democratic Party
 - Delaying it / avoiding it risks exposure in later years or decades and may make you seem complicit for criminal behavior AND to blame for whatever problems occur in America’s future - who knows what a stronger, less criminal Democratic Party could have achieved?
   - manage the image of complicity now by being the ones that hold those that executed this accountable - you didn’t do that, you didn’t know what to say, it got out of hand, maybe you kept saying to stop and they didn’t, you’re glad it’s coming to light now though - they’re not going to say you had fun with it too, that would be childish to hide behind
-- if you don’t take this opportunity, whatever else negative happens to America will be shaped by it without your control and to your blame
-- if you take this opportunity, whatever else positive happens to America will be in your control and to your credit
+- if you don’t take this opportunity, whatever else negative happens to America will be shaped by it without your control and to your blame - what could have happened if you spoke out?
+- if you take this opportunity, whatever else positive happens to America will be in your control and to your credit - change only can happen if you speak out

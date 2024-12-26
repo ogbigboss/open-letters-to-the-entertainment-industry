@@ -1,4 +1,13 @@
 # Accountability is Power
+
+### Update: 12/26
+
+Perhaps I'm paranoid, but I'm fearing some kind of retaliation from the Democratic party and their media connections for the below outline.
+
+If that is the case, I hope some of you in the industry will finally supply me with the proof of them forcing me through non consensual medical research as well as non consensual reality TV filming, most of which would be illegal in different states under invasion of privacy laws, as without that none of this would have occurred.
+
+I urge you to do this in this case for the better of the country and the party, not just for my personal sake. The country deserves an accurate truth that doesn't get further sullied in attempts to smear me, again.
+
 ### An outline
 
 - the matrix, my screen name

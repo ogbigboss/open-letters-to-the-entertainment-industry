@@ -1,0 +1,19 @@
+### A request to someone in Hollywood to consider reaching out to my sister
+
+At risk of retribution from the Democrat party, the DNC, NBC, or other associated groups and individuals in this situation, I have a request.
+
+It's been more than clear that my sister perjured herself, or at least lied, since May 19th of last year, 2024, when I recalled the car theft that took place in 2002. It's only become recently clear that she was likely suborned, or manipulated, into this act, and those that did so knew about the car theft when asking my sister to lie, likely after making sure she forgot about the theft. This shows that those she lied for were offering her something, and were likely to not come through on this offer, thus they concocted the lie in a way that gave them a way out should my sister have ever caught a conscience or threatened honesty as leverage, with all parties involved having the hope that I wouldn't remember the car theft which revealed the lie.
+
+Though there is likely much evidence to support the above, her own personal admission, perhaps made anonymously to the public, could be the most significant thing towards making progress for the Democrat party to be seen as purveryors of accountability as opposed to the opposite.
+
+I'm not sure why my sister took this path, though I think a manipulation of the allure of tying the twin powers of fame with politics had something to do with it. It is what caused the recent power vacuums within America's societal structures, and one that Trump has proven to be true while the Democrat party has proven to be fallable in execution.
+
+For those that seek societal progress and accountability, I think much can be made by getting my sister on the right side of the future here, in a way that can make her feel safe. I also think it's safe to assume those within the Democrat party, the DNC, NBC, and more cannot safely speak or offer my sister anything in this period of time given that their communications could further establish guilt - I think my sister could use some sympathy and in exchange may find an avenue to better herself in a way that can better the country.
+
+If there is any interest within the entertainment industry in developing this in road with my sister, to get her to speak truth, to craft an avenue to where she can feel safe doing so, I would implore someone to give it a shot, understanding it may take time.
+
+My sister likely resides somewhere in California in the Los Angeles area, and my parents are visiting her for 6 weeks starting this Friday morning, January 3rd, and ending on February 15th. That gives a day from this writing to reach out to her without my parents being involved, and numerous weeks to arrange meetings where she'd be best to separate herself given how little my parents know and how likely their devices and whereabouts are still connected to folks in the Democrat party, DNC, NBC, or whomever are still directing their behaviors. Remember, my parents think there's a custody opportunity with their grandkids here, my sister knows that ship has sailed, but understandably has troubles sharing this with my parents, so the DNC / NBC are continuing to manipulate my parents.
+
+Obviously this is a thing that could be left to the FBI, but they can't offer her the same type of solace those in the entertainment industry may be able to do so, and I think the Feds would appreciate the help here.
+
+To be clear: yes, I am quite angry at all that has happened, but unlike some of those in the Democrat party, the DNC, NBC, and more, personal revenge is not a priority to me over opportunities to make progress for the country. I implore those interested in crafting a more accountable Democrat party, a more accountable economy, and a more accountable America take some interest in this effort. But don't put all your eggs in this basket: there are other approaches and please divide your efforts amongst them as well and as you see fit.

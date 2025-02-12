@@ -6,4 +6,4 @@ Look, whether or not that's the case, I'm beseeching Rachel Maddow to talk some 
 
 Rachel - please make steps to stop this. Other MSNBC anchors whose agents have cost your colleagues in the possibility of the SpinCo transition, consider asking Endeavor to back off.
 
-Do you all work for your talent agencies so they can make you less money? Or do your talent agents work for you? It would seem like the latter, at this point. Let's make this situation make sense and end this for everyone's mental health and reputation as leaders in public markets.
+Do you all work for your talent agencies so they can make you less money? Or do your talent agents work for you? It would seem like the former, at this point. Let's make this situation make sense and end this for everyone's mental health and reputation as leaders in public markets.
